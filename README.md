@@ -1,2 +1,0 @@
-# avtotehosmotr
-avtotehosmotr
